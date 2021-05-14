@@ -1,1 +1,1 @@
-# Learn-Chess-Openings-
+# Learn Chess Openings
